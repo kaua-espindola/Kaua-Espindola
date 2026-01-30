@@ -2,7 +2,7 @@
 
 ## About Me
 - 🔭 Software Development
-- 🎓 Computer Science Student - UNIP  (6/8)
+- 🎓 Computer Science Student - UNIP  (7/8)
 
 ## Get in Contact
 - 📫 You can reach me  **kauaespind@gmail.com** 
