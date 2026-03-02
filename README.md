@@ -6,7 +6,7 @@
 
 ## Get in Contact
 - 📫 You can reach me  **kauaespind@gmail.com** 
-
+- 📫 You can reach me  **linkedin.com/in/kaua-espindola-rocha-de-godoi** 
 
 ## Connect with me:
 <p align="left">
